@@ -4,9 +4,11 @@ I write, i LARP, i learn to code.
 
 I'm a dude.
 
-Polish
+Polish.
 
-Ok bye.
+Honorary Boeing Hitman.
+
+Camp JTF Delta Guantanamo Worker.
 
 <!---
 WrongHouseBro/WrongHouseBro is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
